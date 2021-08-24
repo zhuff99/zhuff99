@@ -4,5 +4,5 @@
 - 💞️ Will be adding the rest of my school/solo projects over the next few months.
 - 📫 How to reach me zhuff99@gmail.com
 
-- I just started adding to my github deleted alot of old repositories, I have much more work I have done yet to be added! 
+- I just started adding to my github account, deleted alot of old repositories. I have much more work I have done yet to be added! 
 - Thanks for checking my account out though!
