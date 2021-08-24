@@ -4,7 +4,5 @@
 - 💞️ Will be adding the rest of my school/solo projects over the next few months.
 - 📫 How to reach me zhuff99@gmail.com
 
-<!---
-zhuff99/zhuff99 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- I just started adding to my github deleted alot of old repositories, I have much more work I have done yet to be added! 
+- Thanks for checking my account out though!
